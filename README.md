@@ -10,3 +10,4 @@ Impian dan cita-cita yang harus dicapai di tahun 2020
 - Photography
 - Komunitas teater/cosplay/cyberwar
 - Graphic/logo designer
+- Kerja di startup atau pabrik otomasi
